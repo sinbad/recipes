@@ -5,7 +5,7 @@ The combination of the richness of the dark chocolate and coffee, the
 sharpness of the raspberries, and the copious amounts of sugar to balance it
 is bang-on in my view. But I would say that since this is one of my creations 🙂
 
-Servings: 8
+Servings: 8-10
 
 ## Ingredients
 
@@ -27,12 +27,13 @@ Servings: 8
 
 1. Make the espresso and allow it to cool fully
 1. Preheat oven to 200&#176;C or 180&#176;C Fan
+1. Arrange 8-10 muffin cases in a muffin tray
 1. Combine dry ingredients (flour, cocoa, sugars, baking powder, salt, choc chips) in a large bowl
 1. Stir well
 1. Mix wet ingredients in a separate jug (milk, espresso, oil, egg, vanilla)
 1. Pour wet ingredients into the bowl of dry ingredients, mixing until just combined
 1. Gently fold in the raspberries
-1. Spoon mixture into muffin cases
+1. Spoon mixture into muffin cases, approx 1 heaped tbsp each
 1. Bake for 20 mins or until firm on top.
     * Don't worry if still a bit  gooey inside, that's what you want and residual heat will ensure they're cooked
 1. Cool on a wire rack
